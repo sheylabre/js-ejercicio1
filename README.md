@@ -7,4 +7,3 @@ Pseudocodigo de la suma de dos variables.
 3.-Terccer paso sumar ambas variables
 4.- Cuarto paso resultado de la suma.
 
-[url=http://4.1m.yt/UatMmDN.jpg][img]http://4.1m.yt/UatMmDN.jpg[/img][/url]
